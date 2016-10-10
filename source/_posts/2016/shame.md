@@ -110,7 +110,7 @@ I sometimes feel it is as hard for you than it is for me to take part to *ordina
 
 I feel pain when I read mentions about politics, software development or *things we are urged to do* on Twitter. I am ashamed to be french when politicians express racist ideas under the umbrella of security. I am ashamed to live on the British soil when immigrants are said to be stealing jobs. I feel pain because I do not recognise myself in statements which encompass my person against my will. I feel pain when I see an advertisement in the underground claiming I could improve my life by having a six pack and a golden watch whereas I feel happier walking in a forest or reading a book in front of a quiet river.
 
-Knowing the pain comes from shame helped me realise I am mostly damaged by a contextual situations. I used to think it was my fault. I cannot change the world. You cannot change the world. But I can and you can decide how we interact with it. With whom.
+Knowing the pain comes from shame helped me realise I am mostly damaged by a contextual situation. I used to think it was my fault. I cannot change the world. You cannot change the world. But I can and you can decide how we interact with it. With whom.
 
 **I gradually learned to live with my flaws and weaknesses**, embracing them rather than fighting them with anger — which can only fuel them rather than solving them. It does not work all the time. It is way better though.
 
